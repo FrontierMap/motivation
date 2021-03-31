@@ -9,6 +9,9 @@ https://twitter.com/gershbrain/status/1370323903843868672
 ![image](https://user-images.githubusercontent.com/11603279/113191717-dfbebb00-922b-11eb-9634-528e693d77dd.png)
 
 
+https://twitter.com/deontologistics/status/1359986454013829123
+![image](https://user-images.githubusercontent.com/11603279/113199502-2fee4b00-9235-11eb-89b9-3277cb1780da.png)
+
 
 
 https://twitter.com/gershbrain/status/1349662834297360385
